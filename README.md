@@ -1,5 +1,3 @@
-<script src="nav.js"></script>
-
 # Snitch - The powerful all knowing school newspaper
 
 
@@ -92,4 +90,4 @@ Happy New Year!
 — Flarium 🔥
 
 
-
+<script src="nav.js"></script>
