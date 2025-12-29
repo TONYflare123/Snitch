@@ -1,3 +1,5 @@
+<script src="nav.js"></script>
+
 # Snitch - The powerful all knowing school newspaper
 
 
