@@ -15,6 +15,9 @@ As the end of the year approaches,  there has been a dip in group chat activity,
 
 ---
 
+
+<img width="575" height="450" alt="jojoabsolutecinemapeaksjie" src="https://github.com/user-attachments/assets/2fc11eec-fbdb-47a2-9ee6-99f249497455" />
+
 ## Was 2025 really a WTF year? 🤨
 
 **First of all - what’s a wtf year?**
@@ -44,6 +47,15 @@ One of the most active members of the gc, ironically is one of the most mysterio
 ## Great meme reset round the corner
 
 FINALLY THE BRAINROT IS GOING TO BE DEAD (maybe, it already is idk) but the resistive force of gen z people was strong enough to halt the further progress and popularity of brainrot. Take for example labubu dolls, they’re dead now. I don’t even have anything much to write here, why did I even include this in the paper. Anyways the great meme reset ain’t doing no shit, the so called hope might be all bullshit, we don’t really know. Anyways lets see what 2026 has in store for us.
+
+<img width="162" height="288" alt="image" src="https://github.com/user-attachments/assets/a6dd4db2-fe21-4e80-9835-d236cf5725ef" />
+
+"eeaahhhhhhhhhhh" - The chicken, about to be offered for sacrifice to save 2026 from brainrot.
+
+<img width="187" height="249" alt="image" src="https://github.com/user-attachments/assets/263afc91-4435-483a-9d47-69150643aeab" />
+
+pigeons when you say anything bad about the government.
+
 
 ---
 
