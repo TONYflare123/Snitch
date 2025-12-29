@@ -1,3 +1,7 @@
 theme: jekyll-theme-minimal
 title: Snitch - The all knowing newspaper
 description: Bookmark this to keep an eye on my project until date
+
+sidebar:
+- README.md
+- About.md
